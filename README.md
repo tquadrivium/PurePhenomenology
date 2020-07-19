@@ -6,7 +6,7 @@
 
 关注公众微信号「三艺四术」，获取更多读书会信息。
 
-![](/Users/zhanhao/Documents/BookNotes/metaphysics/github/metaphysics/img/qrcode.jpg)
+![](img/qrcode.jpg)
 
 
 
