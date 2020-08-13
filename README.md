@@ -86,7 +86,7 @@
 
 ### 5.参与方法
 
-将基本情况（如学校、专业方向、年级）和加入读书会的理由（100字以内）发送到 [readingclub@sanyisishu.com](mailto:readingclub@sanyisishu.com) ，邮件题目为：姓名+胡塞尔的《纯粹现象学通论》读书会报名
+将基本情况（如学校、专业方向、年级）和加入读书会的理由（100字以内）发送到 [europecontinent@sanyisishu.com](mailto:europecontinent@sanyisishu.com) ，邮件题目为：姓名+胡塞尔的《纯粹现象学通论》读书会报名
 
 我们会尽可能快的进行答复。
 
